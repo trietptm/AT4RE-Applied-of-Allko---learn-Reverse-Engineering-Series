@@ -24,3 +24,6 @@ https://www.dev-point.com/vb/threads/478476/
 19. تكملة حل تحدي dj-siba وكسرة بواسطة الباتشينج والـ Code Injection 
 
 
+* https://www.at4re.net/f/thread-640.html
+  * https://hostr.co/mx94UEPcL9dl
+* 
